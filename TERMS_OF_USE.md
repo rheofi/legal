@@ -80,7 +80,3 @@ If you have any questions about these Terms, please contact us at:
 
 *   **Telegram:** [https://t.me/rheofi_xyz]
 *   **X/Twitter:** [https://x.com/rheofi_xyz]
-
-***
-
-*Disclaimer: This document is for informational purposes only and does not constitute legal advice. You should consult with a qualified attorney to ensure your Terms of Use comply with applicable laws and regulations in your jurisdiction.*
